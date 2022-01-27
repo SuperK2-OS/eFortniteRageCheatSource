@@ -1,6 +1,6 @@
-# FORTNITE RAGE CHEAT 
+# eFORTNITE RAGE CHEAT - Spanish Translation Fork ;-)
  
-### LATEST UPDATE 01-23-2022 🗓
+### Última Actualización 01-23-2022 🗓
 
 # offsets & Sigs Already Updated! Download it and Release it. also some exploits like skip animation may not work.
 
